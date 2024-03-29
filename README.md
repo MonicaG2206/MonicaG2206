@@ -11,6 +11,7 @@
 ##### * Able to communicate well and work collaboratively with a team.
 ##### * Currently I am undertaking a volunteer point of contact role in my job as the Diversity & Inclusion co-lead where I help to create a safe environment and spread awareness of protected characteristics.
 
+### **I am currently in the process of creating a Technical Portfolio and once finalised the link will be submitted here:**
 
 
 
